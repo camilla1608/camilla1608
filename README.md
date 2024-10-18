@@ -1,16 +1,16 @@
 ## Hi there 👋
 
-<!--
-**camilla1608/camilla1608** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+Aqui estão algumas ideias para você começar:
+
+- 🔭 Atualmente estou estudando no colegio estadual padre claudio morelli🧸
+- 🌱 Atualmente estou aprendendo varias coisas🎉
+- 👯 Procuro colaborar em fazer meu coleguinhas felizes 🌺
+- 🤔 Estou procurando ajuda com tudo 🦄
+- 💬 Pergunte-me sobre fofocas🐀
+- 📫 Como entrar em contato comigo: camilla1608
+- 😄 Pronomes: ela/dela💅🏼
+- ⚡ Curiosidade: eu sei falar e andar🦵🏼💪🏼
+  
