@@ -14,3 +14,6 @@ Aqui estão algumas ideias para você começar:
 - 😄 Pronomes: ela/dela💅🏼
 - ⚡ Curiosidade: eu sei falar e andar🦵🏼💪🏼
   
+![](https://media1.tenor.com/m/MCnMLxHDdGgAAAAd/sideeye.gif)
+
+![](https://media.tenor.com/y5kdPmfWV08AAAAM/side-eye.gif)
