@@ -17,3 +17,9 @@ Aqui estão algumas ideias para você começar:
 ![](https://media1.tenor.com/m/MCnMLxHDdGgAAAAd/sideeye.gif)
 
 ![](https://media.tenor.com/y5kdPmfWV08AAAAM/side-eye.gif)
+
+![](https://media1.tenor.com/m/XIbzmmhkIHYAAAAC/chicken-chickenbro.gif)
+![](https://media1.tenor.com/m/1QhTGovPVzUAAAAd/sonfys-shrek.gif)
+![](https://media.tenor.com/BG-84cOdq20AAAAM/fr-fr-fr.gif)
+![](https://media.tenor.com/OmPA9A9Qz3QAAAAM/august.gif)
+![](https://media.tenor.com/TLhWkKdr770AAAAM/giga-chad.gif)
